@@ -1,1 +1,1 @@
-![image](https://raw.githubusercontent.com/HeliumKA/.github/refs/heads/main/new_banner.png)
+![image](https://raw.githubusercontent.com/HeliumKA/.github/refs/heads/main/22.png)
